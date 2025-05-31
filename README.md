@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello :)
 
 
 - 🔭 I am a undergrad student at the University of Illinois, Chicago
